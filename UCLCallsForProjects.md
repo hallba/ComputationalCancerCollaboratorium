@@ -24,7 +24,7 @@ Contact- k.duffy@ucl.ac.uk
 
 ---
 
-London Interdisciplinary Doctoral Programme
+London Interdisciplinary Doctoral Programme. Call opens April
 
 https://www.lido-dtp.ac.uk
 
