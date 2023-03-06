@@ -16,4 +16,19 @@ Contact- aihealthcdt@ucl.ac.uk
 
 ---
 
+UCL MRC DTP between Birkbeck and UCL
+
+https://www.uclbbk-mrcdtp.ac.uk/
+
+Contact- k.duffy@ucl.ac.uk
+
+---
+
+London Interdisciplinary Doctoral Programme
+
+https://www.lido-dtp.ac.uk
+
+
+
+
 ## Masters projects
