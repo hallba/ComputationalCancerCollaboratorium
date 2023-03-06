@@ -28,8 +28,14 @@ London Interdisciplinary Doctoral Programme. Call opens April
 
 https://www.lido-dtp.ac.uk
 
-n.mogford@ucl.ac.uk
+Contact- Nadine Mogord n.mogford@ucl.ac.uk
 
 
 
 ## Masters projects
+
+Computational Biology MRes- deadline end of March, students start Sept/Oct
+
+https://www.ucl.ac.uk/biosciences/study/masters/mres-biosciences/computational-biology-stream
+
+Contact- Ziheng Yang z.yang@ucl.ac.uk 
