@@ -39,3 +39,14 @@ Computational Biology MRes- deadline end of March, students start Sept/Oct
 https://www.ucl.ac.uk/biosciences/study/masters/mres-biosciences/computational-biology-stream
 
 Contact- Ziheng Yang z.yang@ucl.ac.uk 
+
+---
+
+MSc/MRes Research Project from variety of programmes at the Department of Medical Physics and Biomedical Engineering. Call for projects around September
+
+https://www.ucl.ac.uk/medical-physics-biomedical-engineering/study/postgraduate-taught
+
+Contact- Catarina Veiga c.veiga@ucl.ac.uk
+
+
+
